@@ -1,1 +1,1 @@
-**Conteúdos relativos ao mestrado em gestão da faculdade de economia do Porto.**
+**Conteúdos relativos ao Mestrado em Gestão da Faculdade de Economia do Porto.**
